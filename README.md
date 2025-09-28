@@ -1,5 +1,5 @@
 # 
-Materials used in the study on Player agency due to Branching Choices
+Materials used in the study on Player Agency due to Branching Choices
 
 #
 Video of choices used in the survey is available on the google drive, link below.
